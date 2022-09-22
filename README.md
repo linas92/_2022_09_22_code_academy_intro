@@ -2,4 +2,4 @@
 
 These unicorns are not to be trusted....
 
-This is the place for reading and my stuff. Thats why its called Read+Me=README!!! OMG!!!
+This is the place for "reading" and "my" stuff. Thats why its called Read+Me=README!!! OMG!!!
